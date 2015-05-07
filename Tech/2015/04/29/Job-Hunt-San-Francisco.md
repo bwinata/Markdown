@@ -89,6 +89,8 @@ No matter how many people you connect with, how many jobs you apply for or how g
 
  ***Pro Tip***: If you are successul in locking an interview, be mindful to set a time and date where you will have enough time to prepare. The excitement of first contact with a recruiter will surely get to you, but be mindful to set out your next moves logically.
 
+ 
+
 **5. The Leap of Faith**
 
 **6. The Result**

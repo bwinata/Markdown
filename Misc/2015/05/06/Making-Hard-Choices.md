@@ -2,7 +2,7 @@
 
 ![](http://pas-wordpress-media.s3.amazonaws.com/wp-content/uploads/2013/09/Man-Choosing-Between-Two-Roads.jpg)
 
-In May 2015, I decided to pack my bags and head overseas to work. I was leaving friends, family, routine, familiar surroundings and heading to a place I had never been, not knowing what was going to happen next. Coming to this decision was one of the biggest choices I've ever had to make but I'm glad I did and looking back, I don't think I would of had it any other way. I was faced with a hard choice. 
+In May 2015, I decided to pack my bags and head overseas to work in the States. I was leaving friends, family, routine, familiar surroundings and heading to a place I had never been, not knowing what was going to happen next. Until that point I had traveled quite a bit in my time but never lived abroad, so as you may well imagine coming to this decision was one of the biggest choices I have ever had to make but I'm glad I did and looking back, I don't think I would of had it any other way. I was faced with a hard choice. 
 
 Interestingly, a year prior in May 2014 (maybe it was serendipity), I was brought to the attention of a TED talk given by Ruth Chang. Ruth gave a powerful talk at TEDSalon NY about [How to Make Hard Choices](http://www.ted.com/talks/ruth_chang_how_to_make_hard_choices). It had such an impact on me personally, that I decided to share it with anyone willing to give this piece a read and hopefully help you as it did for me make that hard decision you've been considering for a while. 
 
